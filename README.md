@@ -41,7 +41,9 @@ Me quiero tatuar
 Y por ultimo conseguir siempre lo que me proponga y sacarme este curso lo mejor que pueda.
 
 Yo creo que ya no hay nada mas que poner soy basica lo se pero es que lo que me gusta son pocas cosas no es nada extravagante, y bueno ya lo dejo aqui espero que te guste y sepas de mi y ahora me voy que ya llego tarde al gim :stuck_out_tongue_winking_eye:.
+
 Gracias por leer.
+
 Chao me voy.
 ![image](https://github.com/user-attachments/assets/b9fa701f-7d08-4563-9904-d5a200cb166e)
 
